@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing thus far,
 - 📫 How to reach me not public currently,
 - 😄 Pronouns: he/him/his,
-- ⚡ Fun fact: I am neuraldivergent and I am not a bird. I may make jokes sometimes...
+- ⚡ Fun fact: I have autism + adhd.
 3/4/26 edit:
 I am planning on making a video game, what better way to practice the contribute to projects for inspiration and learning.
 I am in high school, forgive me for mistakes. 
