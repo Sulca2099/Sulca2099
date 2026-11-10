@@ -1,6 +1,5 @@
 - Hi, I’m @Sulca2099,
 - My private info is not shared, talk to me on comments,
-- Pronouns: he/him/his,
 - Fun fact: Mice can’t barf. 
 <!---
 Sulca2099/Sulca2099 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
